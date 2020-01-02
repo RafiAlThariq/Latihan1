@@ -19,3 +19,4 @@
 
 
 6.Selesai 
+![selesai](https://user-images.githubusercontent.com/50246576/71677497-91670600-2db5-11ea-90e3-1d510c07f23a.png)
